@@ -56,11 +56,11 @@ hey hey! remember this, cool person okay? i dont mind if you are under 13 or ove
  you'll mostly see me with a yuta skin! if not, megumi, yuki, sukuna, but mostly yuta ok..?
  </p>
  
-<p align="center">
-  <img src="https://files.catbox.moe/3zyx0f.png" width="500"/>
- </p> 
+   
  <p align="center">
 <h2>LIKES!</h2>
+ <img src="https://files.catbox.moe/3zyx0f.png" width="500"/>
+ </p>  
 heyy so i really like energy drinks! it keeps me awake, one of the reason i got little eyebags irl...
 </p> 
 i really like focusing on a goal or whatever i need to obtain! sometimes my sleep schedule gets ruined cause of that!
@@ -91,6 +91,7 @@ i dont know what to say! ;gulps
  
   <p align="center">
  <img src="https://i.pinimg.com/1200x/68/f5/42/68f5429dd821e52983550a389503a3e9.jpg" width="500"/>
+    </p> 
     okk! ty for listening! wip strawpage btww!
- </p>
+  </p>
 
