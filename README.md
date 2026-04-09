@@ -14,4 +14,5 @@
 
 <p align="center">
   # short dni list ! >-<
+</p>                         
 hey don't take this seriously okay? I just want to let you know that you should be yourself! 
