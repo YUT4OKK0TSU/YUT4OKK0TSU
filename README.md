@@ -55,5 +55,8 @@ hey hey! remember this, cool person okay? i dont mind if you are under 13 or ove
  </p>
  
 <p align="center">
- <img src="https://i.pinimg.com/736x/ef/4e/63/ef4e63306ca800695ff4e22bd76bb8b7.jpg" width="500"/>
+  <img src="https://files.catbox.moe/3zyx0f.png" width="500"/>
+  <img src="https://i.pinimg.com/736x/ef/4e/63/ef4e63306ca800695ff4e22bd76bb8b7.jpg" width="500"/>
+<img src="https://files.catbox.moe/azh0fh.png" width="500"/>
+ 
 </p>
