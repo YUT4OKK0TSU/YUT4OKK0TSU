@@ -77,9 +77,7 @@ i dont know what to say! ;gulps
 <img src="https://files.catbox.moe/azh0fh.png" width="500"/>
 </p>
 
- <p align="center">
- <img src="https://i.pinimg.com/1200x/68/f5/42/68f5429dd821e52983550a389503a3e9.jpg" width="500"/>
- </p>
+
  
  <p align="center">
  <h2>DISLIKES!</h2>
@@ -91,4 +89,8 @@ i dont know what to say! ;gulps
  uhh i don't know anymore HAHAHA
  </p>
  
+  <p align="center">
+ <img src="https://i.pinimg.com/1200x/68/f5/42/68f5429dd821e52983550a389503a3e9.jpg" width="500"/>
+    okk! ty for listening! wip strawpage btww!
+ </p>
 
