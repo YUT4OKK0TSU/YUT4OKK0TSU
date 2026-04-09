@@ -39,6 +39,8 @@ hey hey! remember this, cool person okay? i dont mind if you are under 13 or ove
  </p>  
  hey, i love friends so much! but don't get me wrong and overthink that i developed feelings for you when i say "ILYYYY/I LOVE YOUU" "MWAHHH" "MUWAHH" "SLEEP WELL!" "LOVEEEYYUUU" "LOVEEEHHHH" "cutie" or more, haha.. i just love saying those okii?? infact I'm overthinking and worrying to say that to my close friends or friends... im too embarrassed, so if you tell that to me? or say one of these to me? I'm gonna cryyy! i love u broo!! T-T
  </p>
+ hey dww, i am very gentle and polite LOLL!
+ </p>
  i don't really like when people make me choose between my friends,, I overthink really fast and our convo might become awkward, sorry for that!
  </p>
  I do. I do sometimes sound mean, but sometimes it's moodswings, a joke, a dare or a prank/troll! but trust me, I am really nice, what do you expect a yuta kinnie to be? LOLLL
@@ -57,6 +59,7 @@ hey hey! remember this, cool person okay? i dont mind if you are under 13 or ove
 <p align="center">
   <img src="https://files.catbox.moe/3zyx0f.png" width="500"/>
  </p> 
+ <p align="center">
 <h2>LIKES!</h2>
 heyy so i really like energy drinks! it keeps me awake, one of the reason i got little eyebags irl...
 </p> 
@@ -65,9 +68,26 @@ i really like focusing on a goal or whatever i need to obtain! sometimes my slee
 i like friends im really loyal to them
 </p>
 i really like cabbage with salt and sesame oil, DUDE I LOVE THEMM!, geez.. okay sorry I'll continue! i also like sprite!
+</p>
+hey so i really really love maki btw, drools.. 
+</p>
+i dont know what to say! ;gulps
 
   <p align="center">
 <img src="https://files.catbox.moe/azh0fh.png" width="500"/>
 </p>
+
+ <p align="center">
+ <img src="https://i.pinimg.com/originals/92/d7/5a/92d75ac395ddfc78fe6434a0afa8bb5d.gif" width="500"/>
+ </p>
+ <p align="center">
+ <h2>DISLIKES!</h2>
+ </p>
+ i don't really like the fatty parts of all steaks, i dont know, i just dislike them..
+ </p>
+ ageplayers
+ </p>
+ uhh i don't know anymore HAHAHA
+ </p>
  
 
