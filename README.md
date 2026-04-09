@@ -11,3 +11,7 @@
 <p align="center">
   c+h, INT, W2I, I DONT MINDDD!! INFACT I WOULD LOVE TO CUDDLE AND INTERACT! but pls dont if there's a 'dni' or 'dniuf/cf'! I rarely add them so its okay!!
 </p>
+
+<p align="center">
+  # short dni list ! >-<
+hey don't take this seriously okay? I just want to let you know that you should be yourself! 
