@@ -14,6 +14,6 @@
 </p>
 
 <p align="center">
-  # short dni list ! >-<
+  <p style="font-size:50px;">short dni list!</p>
 </p>                         
 hey don't take this seriously okay? I just want to let you know that you should be yourself! 
