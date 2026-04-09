@@ -47,7 +47,11 @@ hey hey! remember this, cool person okay? i dont mind if you are under 13 or ove
  </p>
  my heart melts alot, for example, whenever me and a friend are having an argument, and they avoid me or do absolutely nothing, my heart melts so fast and straightly says sorry, UNLESS it's not something very very very very serious maybe. T-T
  </p>
- I LOVE LOVE LOVE LOVE LOVE LOVE LOVE LOVE LOVE MY ABUSER GEL, VAL/VEL/ALYN/QUINCE/JJK FRIENDS/SUGA/
+ I LOVE LOVE LOVE LOVE LOVE LOVE LOVE LOVE LOVE MY ABUSER GEL, VAL/VEL/ALYN/QUINCE/JJK FRIENDS/SUGA AND MY FRIENDSSSSS!!!
+ </p>
+ okay so you'll mostly see me sitting on the jjk spot, if not I'm maybe just roaming around looking for eggs and clovers
+ </P>
+ you'll mostly see me with a yuta skin! if not, megumi, yuki, sukuna, but mostly yuta ok..?
  
 <p align="center">
  <img src="https://i.pinimg.com/736x/ef/4e/63/ef4e63306ca800695ff4e22bd76bb8b7.jpg" width="500"/>
