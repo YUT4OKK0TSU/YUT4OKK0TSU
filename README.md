@@ -87,6 +87,8 @@ i dont know what to say! ;gulps
  </p>
  uhh i don't know anymore HAHAHA
  </p>
+
+ </p>
  
   <p align="center">
  <img src="https://i.pinimg.com/1200x/68/f5/42/68f5429dd821e52983550a389503a3e9.jpg" width="500"/>
