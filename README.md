@@ -39,3 +39,9 @@ hey hey! remember this, cool person okay? i dont mind if you are under 13 or ove
  </p>
  i don't really like when people make me choose between my friends,, I overthink really fast and our convo might become awkward, sorry for that!
  </p>
+ I do. I do sometimes sound mean, but sometimes it's moodswings, a joke, a dare or a prank/troll! but trust me, I am really nice, what do you expect a yuta kinnie to be? LOLLL
+ </P>
+ okay so if I say something sad or something like "okay, fine I'll stop, frowns" or "ok ill stop" PLS DON'T GET ME WRONGGGG! im not gonna turn depressed plss!! I'm mostly just jokinggg!!! LOLLL
+ </p>
+ my heart melts alot, for example, whenever me and a friend are having an argument, and they avoid me or do absolutely nothing, my heart melts so fast and straightly says sorry, UNLESS it's not something very very very very serious maybe. T-T
+ </p>
