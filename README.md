@@ -28,10 +28,11 @@ next is uhhh, skin stealers; please don't copy skins, its impolite and disrespec
 hey hey! remember this, cool person okay? i dont mind if you are under 13 or over 18! I am friendly and would love to have new friends! I don't mind interacting with you guyss! but please remember this, if i find you guys weird or im uncomfortable, no no don't get it wrong! i won't block or hide you guys instantly! I would most likely politely tell you! for example, i would say "uhh, that's kinda making me uncomfortable T-T" maybe like that! so you don't need to worry and overthink if you are annoying, weird or is making me uncomfortable! i gotchuuu ^^ <3
 </p>
 
-<p align="center">
+
   <img src="https://i.pinimg.com/originals/5a/12/3d/5a123da2a56f835a713df3a1b8a12fa7.gif" width="500"/>
   </p>
   
+  <p align="center">
   <h2>take notes!</h2>
  </p>  
  hey, i love friends so much! but don't get me wrong and overthink that i developed feelings for you when i say "ILYYYY/I LOVE YOUU" "MWAHHH" "MUWAHH" "SLEEP WELL!" "LOVEEEYYUUU" "LOVEEEHHHH" "cutie" or more, haha.. i just love saying those okii?? infact I'm overthinking and worrying to say that to my close friends or friends... im too embarrassed, so if you tell that to me? or say one of these to me? I'm gonna cryyy! i love u broo!! T-T
