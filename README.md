@@ -24,3 +24,4 @@ but seriously though... please don't interact if you are um racist! I dont want 
 okay so next is uhhh ageplayers! I mean you can but please, I dont want to say something inappropriate infront of minors! because seriously, what if they told me that they are like 15+ already and I joke about things and swear(which i rarely dont, but its still risky!) and they are actually a minor..? please, this actions are very risky! cries
 </p>
 next is uhhh, skin stealers; please don't copy skins, its impolite and disrespectful... you can int unless you want to talk about it... and you don't need to ask if you can copy and take inspos from my skins, because i would politely say no,, im sorry but no T-T gulps..
+</p>
