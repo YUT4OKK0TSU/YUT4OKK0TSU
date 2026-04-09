@@ -16,8 +16,10 @@
 <p align="center">
   <h2>short dni list!</h2>
  </p>  
-  
-</p>                         
+ <img src="https://i.pinimg.com/originals/9f/0a/7c/9f0a7c754ff809bed9ce80e64dddc8a1.gif" width="500"/>  
+</p>  
+
+</p> 
 hey don't take this seriously okay? I just want to let you know that you should be yourself! 
 but seriously though... please don't interact if you are um racist! I dont want to be mean but you should actually stop being racist... i know i said to be yourself but racist people... please stop man...
 </p>
@@ -45,6 +47,7 @@ hey hey! remember this, cool person okay? i dont mind if you are under 13 or ove
  </p>
  my heart melts alot, for example, whenever me and a friend are having an argument, and they avoid me or do absolutely nothing, my heart melts so fast and straightly says sorry, UNLESS it's not something very very very very serious maybe. T-T
  </p>
+ I LOVE LOVE LOVE LOVE LOVE LOVE LOVE LOVE LOVE MY ABUSER GEL, VAL/VEL/ALYN/QUINCE/JJK FRIENDS/SUGA/
  
 <p align="center">
  <img src="https://i.pinimg.com/736x/ef/4e/63/ef4e63306ca800695ff4e22bd76bb8b7.jpg" width="500"/>
