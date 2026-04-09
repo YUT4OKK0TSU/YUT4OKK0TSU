@@ -45,3 +45,7 @@ hey hey! remember this, cool person okay? i dont mind if you are under 13 or ove
  </p>
  my heart melts alot, for example, whenever me and a friend are having an argument, and they avoid me or do absolutely nothing, my heart melts so fast and straightly says sorry, UNLESS it's not something very very very very serious maybe. T-T
  </p>
+ 
+<p align="center">
+ <img src="https://i.pinimg.com/736x/ef/4e/63/ef4e63306ca800695ff4e22bd76bb8b7.jpg" width="500"/>
+</p>
