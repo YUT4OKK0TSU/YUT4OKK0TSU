@@ -73,7 +73,6 @@ hey so i really really love maki btw, drools..
 </p>
 i dont know what to say! ;gulps
 
-  <p align="center">
 <img src="https://files.catbox.moe/azh0fh.png" width="500"/>
 </p>
 
