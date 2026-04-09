@@ -25,3 +25,5 @@ okay so next is uhhh ageplayers! I mean you can but please, I dont want to say s
 </p>
 next is uhhh, skin stealers; please don't copy skins, its impolite and disrespectful... you can int unless you want to talk about it... and you don't need to ask if you can copy and take inspos from my skins, because i would politely say no,, im sorry but no T-T gulps..
 </p>
+hey hey! remember this, cool person okay? i dont mind if you are under 13 or over 18! I am friendly and would love to have new friends! I don't mind interacting with you guyss! but please remember this, if i find you guys weird or im uncomfortable, no no don't get it wrong! i won't block or hide you guys instantly! I would most likely politely tell you! for example, i would say "uhh, that's kinda making me uncomfortable T-T" maybe like that! so you don't need to worry and overthink if you are annoying, weird or is making me uncomfortable! i gotchuuu ^^ <3
+</p>
