@@ -57,10 +57,17 @@ hey hey! remember this, cool person okay? i dont mind if you are under 13 or ove
 <p align="center">
   <img src="https://files.catbox.moe/3zyx0f.png" width="500"/>
  </p> 
-  <img src="https://i.pinimg.com/736x/ef/4e/63/ef4e63306ca800695ff4e22bd76bb8b7.jpg" width="200"/>
-  </p>
+<h2>LIKES!</h2>
+heyy so i really like energy drinks! it keeps me awake, one of the reason i got little eyebags irl...
+</p> 
+i really like focusing on a goal or whatever i need to obtain! sometimes my sleep schedule gets ruined cause of that!
+</p> 
+i like friends im really loyal to them
+</p>
+i really like cabbage with salt and sesame oil, DUDE I LOVE THEMM!, geez.. okay sorry I'll continue! i also like sprite!
+
   <p align="center">
 <img src="https://files.catbox.moe/azh0fh.png" width="500"/>
 </p>
  
-</p>
+
