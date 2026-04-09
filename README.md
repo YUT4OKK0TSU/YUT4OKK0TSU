@@ -1,6 +1,6 @@
 <p align="center">
 <img src="https://files.catbox.moe/h0k9ee.png" width="500"/>
-  
+  "i want to be loved by someone. to be needed by someone. I want the confidence to feel like it's okay to live"
 <p align="center">
   <img src="https://i.pinimg.com/originals/3e/08/99/3e0899e1fc90b571ac8da26afb2b30a0.gif" width="500"/>
 </p>
