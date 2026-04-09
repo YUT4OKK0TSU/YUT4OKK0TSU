@@ -30,6 +30,7 @@ hey hey! remember this, cool person okay? i dont mind if you are under 13 or ove
 
 <p align="center">
   <img src="https://i.pinimg.com/originals/5a/12/3d/5a123da2a56f835a713df3a1b8a12fa7.gif" width="500"/>
+  </p>
   <h2>take notes!</h2>
  </p>  
  hey, i love friends so much! but don't get me wrong and overthink that i developed feelings for you when i say "ILYYYY/I LOVE YOUU" "MWAHHH" "MUWAHH" "SLEEP WELL!" "LOVEEEYYUUU" "LOVEEEHHHH" "cutie" or more, haha.. i just love saying those okii?? infact I'm overthinking and worrying to say that to my close friends or friends... im too embarrassed, so if you tell that to me? or say one of these to me? I'm gonna cryyy! i love u broo!! T-T
