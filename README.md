@@ -52,6 +52,7 @@ hey hey! remember this, cool person okay? i dont mind if you are under 13 or ove
  okay so you'll mostly see me sitting on the jjk spot, if not I'm maybe just roaming around looking for eggs and clovers
  </P>
  you'll mostly see me with a yuta skin! if not, megumi, yuki, sukuna, but mostly yuta ok..?
+ </p>
  
 <p align="center">
  <img src="https://i.pinimg.com/736x/ef/4e/63/ef4e63306ca800695ff4e22bd76bb8b7.jpg" width="500"/>
