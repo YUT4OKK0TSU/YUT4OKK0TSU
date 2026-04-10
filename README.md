@@ -6,7 +6,9 @@
 </p>
 
 <p align="center">
-----  hii!! welcome to my github, cool person! I am a yuta kinnie! he is me irl lol!! although i sometimes turn into megumi gulps, so just call me yuta, kkotsu, okkotsu, tooru or just some uh random nicknames! madeup ones are okay, i find those funny!! ----
+----  hii!! welcome to my github, cool person! I am a yuta kinnie! he is me irl lol!! although i sometimes turn into megumi gulps,
+</p>  
+  so just call me yuta, kkotsu, okkotsu, tooru or just some uh random nicknames! madeup ones are okay, i find those funny!! ----
 </p>
 
 <p align="center">
