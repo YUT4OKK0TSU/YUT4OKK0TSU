@@ -8,7 +8,7 @@
 <p align="center">
 🤍  hii!! welcome to my github, cool person! I am a yuta kinnie! he is me irl lol!! although i sometimes turn into megumi gulps,
 </p>  
-  so just call me yuta, kkotsu, okkotsu, tooru or just some uh random nicknames! madeup ones are okay, i find those funny!! 🤍
+  so just call me yuta, kkotsu, okkotsu, tooru khakie, kie or just some uh random nicknames since my friends commonly uses one of those! madeup ones are okay, i find those funny!! 🤍
 </p>
 
 <p align="center">
