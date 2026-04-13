@@ -7,6 +7,8 @@
 
 <p align="center">
 🤍  hii!! welcome to my github, cool person! I am a yuta kinnie! he is me irl lol!! although i sometimes turn into megumi gulps,
+</p> 
+hey take not oki! this person manages to feel anxious even though nothing is wrong 😅 and no! just a bit awkward with new people maybe
 </p>  
   so just call me yuta, kkotsu, okkotsu, tooru khakie, kie or just some uh random nicknames since my friends commonly uses one of those! madeup ones are okay, i find those funny!! 🤍
 </p>
@@ -42,6 +44,8 @@ hey hey! remember this, cool person okay? i dont mind if you are under 13 or ove
  hey, i love friends so much! but don't get me wrong and overthink that i developed feelings for you when i say "ILYYYY/I LOVE YOUU" "MWAHHH" "MUWAHH" "SLEEP WELL!" "LOVEEEYYUUU" "LOVEEEHHHH" "cutie" or more, haha.. i just love saying those okii?? infact I'm overthinking and worrying to say that to my close friends or friends... im too embarrassed, so if you tell that to me? or say one of these to me? I'm gonna cryyy! i love u broo!! T-T
  </p>
  hey dww, i am very gentle and polite LOLL!
+ </p>
+ i like praises and compliment but i oftenly overreact maybe and get embarrassed LOLLL
  </p>
  i don't really like when people make me choose between my friends,, I overthink really fast and our convo might become awkward, sorry for that!
  </p>
