@@ -55,7 +55,7 @@ hey hey! remember this, cool person okay? i dont mind if you are under 13 or ove
  </p>
  my heart melts alot, for example, whenever me and a friend are having an argument, and they avoid me or do absolutely nothing, my heart melts so fast and straightly says sorry, UNLESS it's not something very very very very serious maybe. T-T
  </p>
- I LOVE LOVE LOVE LOVE LOVE LOVE LOVE LOVE LOVE MY ABUSER GEL, VAL/VEL/ALYN/QUINCE/JJK FRIENDS/SUGA AND MY FRIENDSSSSS!!!
+ I LOVE LOVE LOVE LOVE LOVE LOVE LOVE LOVE LOVE MY ABUSER GEL,VAL/VEL,ALYN,QUINCE,JJK FRIENDS,SUGA, LOWE, MINHO, XAV AND MY OTHER FRIENDSSSSS!!!
  </p>
  okay so you'll mostly see me sitting on the jjk spot, if not I'm maybe just roaming around looking for eggs and clovers
  </P>
