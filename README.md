@@ -67,8 +67,10 @@ hey hey! remember this, cool person okay? i dont mind if you are under 13 or ove
 <h2>LIKES!</h2>
  <img src="https://files.catbox.moe/3zyx0f.png" width="500"/>
  </p>  
-heyy so i really like energy drinks! it keeps me awake, one of the reason i got little eyebags irl...
+heyy so i ike energy drinks! it keeps me awake, one of the reason that caused my little eyebags irl...
 </p> 
+I LOVE SPRITE
+</p>
 i really like focusing on a goal or whatever i need to obtain! sometimes my sleep schedule gets ruined cause of that!
 </p> 
 i like friends im really loyal to them
