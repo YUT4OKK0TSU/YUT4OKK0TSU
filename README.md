@@ -71,6 +71,8 @@ heyy so i ike energy drinks! it keeps me awake, one of the reason that caused my
 </p> 
 I LOVE SPRITE
 </p>
+yes! i ship yuta and maki, or yuta and inumaki! im okay with any ships unless its a very weird and questionable one..
+</p>
 i really like focusing on a goal or whatever i need to obtain! sometimes my sleep schedule gets ruined cause of that!
 </p> 
 i like friends im really loyal to them
