@@ -96,7 +96,7 @@ i dont know what to say! ;gulps
  </p>
  uhh i don't know anymore HAHAHA
  </p>
-https://www.roblox.com/users/5867231962/profile  -   yuta ' kie's roblox
+
  </p>
  
   <p align="center">
@@ -104,4 +104,4 @@ https://www.roblox.com/users/5867231962/profile  -   yuta ' kie's roblox
       <p align="center">
     okk! ty for listening! wip strawpage btww!
   </p>
-
+https://www.roblox.com/users/5867231962/profile  -   yuta ' kie's roblox
