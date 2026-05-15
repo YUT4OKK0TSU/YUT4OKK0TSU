@@ -10,6 +10,9 @@
 hey take not oki! this person manages to feel anxious even though nothing is wrong 😅 and no! just a bit awkward with new people maybe
 </p>  
   so just call me yuta, kkotsu, okkotsu, tooru khakie, kie or just some uh random nicknames since my friends commonly uses one of those! madeup ones are okay, i find those funny!! 🤍
+
+</p>
+**Btw! @aushentic [me !] wanna femboy rp aush[chosotot] YES** 
 </p>
 
 <p align="center">
